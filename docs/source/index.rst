@@ -1,22 +1,24 @@
-Welcome to Lumache's documentation!
-===================================
+BDVN đá đã khẳng định vị thế của mình không chỉ là một là trang web bóng đá thể thao hàng đầu mà còn là một điểm thông tin đa dạng dành cho người chơi có gu thưởng thức phong phú. Địa chỉ: 58 Ngõ 62 Nguyễn Chí Thanh, Láng Thượng, Đống Đa, Hà Nội, Việt Nam. Phone: 0345569874. Email: bdvncasino@gmail.com. Website: https://bdvn.casino/ #bdvn #bongda #bongdavn
+https://www.facebook.com/bdvncasino/
 
-**Lumache** (/lu'make/) is a Python library for cooks and food lovers
-that creates recipes mixing random ingredients.
-It pulls data from the `Open Food Facts database <https://world.openfoodfacts.org/>`_
-and offers a *simple* and *intuitive* API.
+https://x.com/bdvncasino
 
-Check out the :doc:`usage` section for further information, including
-how to :ref:`installation` the project.
+https://www.youtube.com/@bdvncasino
 
-.. note::
+https://www.pinterest.com/bdvncasino/
 
-   This project is under active development.
+https://vimeo.com/bdvncasino
 
-Contents
---------
+https://www.blogger.com/profile/15791986273205010354
 
-.. toctree::
+https://gravatar.com/bdvncasino
 
-   usage
-   api
+https://talk.plesk.com/members/bdvncasin.369864/#about
+
+https://www.tumblr.com/bdvncasino
+
+https://www.openstreetmap.org/user/bdvncasino
+
+https://www.zillow.com/profile/bdvncasino
+
+https://samirajohnspaityn416.systeme.io/
